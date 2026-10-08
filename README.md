@@ -217,4 +217,4 @@ Wilcom Truesizer is available as a full free version with all features and updat
 Ready to transform your embroidery projects? **Download Wilcom Truesizer free today and unlock your creative potential!**
 
 ---
-**Last updated:** 2026-10-08 00:47:10 UTC
+**Last updated:** 2026-10-08 07:05:02 UTC
